@@ -19,3 +19,9 @@
 ![image](https://user-images.githubusercontent.com/74452252/192287612-90668bfa-87d0-4155-9f5d-e6d13ee46381.png)
 
 ![image](https://user-images.githubusercontent.com/74452252/192287714-509850be-3e2a-47bb-a472-c40153e81093.png)
+
+
+
+# For Practical exam
+
+![image](https://user-images.githubusercontent.com/74452252/195275063-e9ad1b1d-c382-4ce8-b8d1-f802768e9e92.png)
